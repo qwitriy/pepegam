@@ -3,6 +3,4 @@
 ye
 
 
-wtf
-
 yup yup aga
